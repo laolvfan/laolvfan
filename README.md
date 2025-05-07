@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on none(now)
 - 📫 How to reach me :928782910@qq.com
-- 😄 Pronouns: clod outside but hot inside
+- 😄 Pronouns: cold outside but hot inside
 - ⚡ Fun fact: cold jokes
 
 <!---
